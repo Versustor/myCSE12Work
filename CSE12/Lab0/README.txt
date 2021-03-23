@@ -1,0 +1,1 @@
+I, Benjamin Quang, have read and understood the Fall CSE12 syllabus and Personal Responsibility Document. bquang 1 October 2020
